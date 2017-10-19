@@ -2,6 +2,6 @@
 
 Здесь будут храниться ваши домашки.
 
-Здесь будет беседка: 
+Беседка в Telegram: https://t.me/joinchat/ECxiRQ3VOylCT_SmcjFiEw
 
 По вопросам сюда: vk.com/aleksey_pesenko
